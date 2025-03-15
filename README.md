@@ -1,4 +1,4 @@
-## Hi, I'm Jang 🤫🧏‍♂️
+# Hi, I'm Jang 🤫🧏‍♂️
 
  ✨Dominican/Chinese✨<br/>
  📖 I.T. Cybersecurity student at BCC 📖<br/>
@@ -6,7 +6,8 @@
  😼 Trying to learn & improve throughout the circumstances😼<br/>
  👥Part of many clubs and organizations👥<br/>
  👩🏾‍🤝‍👨🏻Happily engaged👩🏾‍🤝‍👨🏻<br/>
- 📱Social Media📱<br/> 
+ 
+ # 📱Social Media📱<br/> 
  📸 [Instagram](https://www.instagram.com/jl_mthd/) 📸<br/>
  🔵 [Discord](https://discord.gg/CND7DwQ3) 🔵<br/>
  🤵 [LinkedIn](https://www.linkedin.com/in/jang-mok-476a00351/) 🤵<br/>
