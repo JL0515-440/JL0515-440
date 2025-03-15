@@ -1,7 +1,7 @@
 # Hi, I'm Jang 🤫🧏‍♂️
 
  ✨Dominican/Chinese✨<br/>
- 📖 I.T. Cybersecurity student at BCC 📖<br/>
+ 📖 Information Technology: Cybersecurity student at BCC 📖<br/>
  🟣 Purple Teaming Enthusiast 🟣<br/>
  😼 Trying to learn & improve throughout the circumstances😼<br/>
  👥Part of many clubs and organizations👥<br/>
