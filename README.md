@@ -1,4 +1,4 @@
-# Hi, I'm Jang 🤫🧏‍♂️
+# Hi, I'm Jang Mok Perez
 
  ✨Dominican/Chinese✨<br/>
  📖 Information Technology: Cybersecurity student at BCC 📖<br/>
